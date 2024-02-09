@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning geology
 - 💞️ I’m looking to collaborate on the destruction of the world
 - 📫 How to reach me : you dont
-- 😄 Pronouns: their
+- 😄 Pronouns: their, you, that, this, it, her, his, yours, them, him, he, she, its (chose the one you want)
 - ⚡ Fun fact: lol
 
 <!---
